@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChronicExtract1k
+- 👋 Hi, I’m @Assult Chronixz.
 - 👀 I’m interested in fortnite and alot of gaming
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on montages
